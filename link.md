@@ -1,2 +1,8 @@
-https://brezular.com
-https://mega.nz/folder/BvIXFYQS#ppbC171ak0BCwag3BKEF9Q
+- https://brezular.com
+- https://mega.nz/folder/BvIXFYQS#ppbC171ak0BCwag3BKEF9Q
+- http://185.193.143.43/DataSpace/
+- magnet:?xt=urn:btih:B5FC7CD66F0B514A4FAACA54C3F6C6C4E3A17508
+- magnet:?xt=urn:btih:58306E88092D6C568757811CFF468752B28D8901
+- magnet:?xt=urn:btih:3A9CE6D620251349E5A1288D9507D22040635657
+- https://mega.nz/file/4EwzBRrI#nAyx1DbD20M8u1a0qnakWq-k6o6cTYHNc_x8HO5FjJg
+- https://drive.google.com/drive/folders/1tDC25yN8c7C62_gAVkXUDnDHXuWykmdG
